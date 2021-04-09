@@ -1,6 +1,6 @@
 ### 🌎 Hello World 👋
 
-I am a husband 🧍, dog-lover 🐶 and software programmer 💻
+I am a husband 🧍, dog-dad 🐶 and software programmer 💻
 
 ✨LET'S COLLABORATE AND TALK PROGRAMMING✨
 
